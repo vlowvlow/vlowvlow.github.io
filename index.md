@@ -16,7 +16,9 @@ even still nothing, its all just about two different side of coin, me and u alr 
 
 y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
 
-lfg! wyatb! ^-^
+lfg! wyatb! ^^
+
+sorry for everything/nothing/whatever ^-^
 
 Sincerely, vlow ^^
 
