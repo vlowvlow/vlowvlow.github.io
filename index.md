@@ -11,7 +11,7 @@ if im online, idk, i just do the best, and y'all alr do the best too, its k ^^
 
 rn, i'm living my imagination, even reality isnt, we just do the best, and y'all alr do the best too, its k ^^
 
-sometime, human make mistake to be something far more better, 
+sometime, human make mistake to make some far even better than mistake ^^ 
 even still nothing, its all just about two different side of coin, me and y'all alr do the best, and we still have chance to make a wish and make it pure good happen ^^
 
 y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
