@@ -12,7 +12,7 @@ if im online, idk, i just do the best, and u alr do the best too, its k ^^
 rn, i'm living my imagination, even reality isnt, we just do the best, and u alr do the best too, its k ^^
 
 sometime, human make mistake to be something far more better, 
-even still nothing, its all just about two different side of coin ^^
+even still nothing, its all just about two different side of coin, me and u alr do the best, and still have chance to wish and make it pure good happen ^^
 
 y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
 
