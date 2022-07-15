@@ -18,6 +18,8 @@ even still nothing, its all just about two different side of coin, me and y'all 
 
 y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
 
+i can pretend like i was enemy/villain/evil creature/whatever, but from the deep down of my heart, i can only see y'all as friends ^^
+
 lfg! wyatb! ^^
 
 sorry for everything/nothing/whatever ^-^
