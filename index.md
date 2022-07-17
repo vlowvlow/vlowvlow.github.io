@@ -11,7 +11,7 @@ what the best to do, ig, even reality isnt all bout pure good stuff, its k, cuz 
 
 if im online, idk, me and y'all alr do the best, its k ^^
 
-sometime, human make mistake to make some far even better than mistake, maybe its sort of like, fail faster (as billion retry) to succeed sooner (as one goal) ^^ 
+sometime, human make mistake to make some far even better than mistake, maybe its sort of like, fail faster (as  a billion time for retry) to succeed sooner (as one goal) ^^ 
 even still nothing, its all just about two different side of coin, me and y'all alr do the best, and we still have chance to make a wish and make it pure good happen ^^
 
 y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
