@@ -24,7 +24,11 @@ lfg! wyatb! ^^
 
 at the end of the time, im just an average (or maybe im an below average) person, who doing some stuff
 
-sorry for everything/nothing/whatever ^-^
+every time when i talkin/doin/whatever, it just kind of blurry view for myself, so idk its good/bad/whatever
+
+i'll find therapist if i want & could, dw
+
+sorry for the past/the present/the future/everything/nothing/whatever ^-^
 
 sincerely, vlow ^^
 
