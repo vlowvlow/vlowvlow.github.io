@@ -18,7 +18,7 @@ y'all can msg/chat/etc me asap, i'll help/reply/etc y'all asap ^^
 
 i can playing to be pretend like i was enemy/villain/evil creature/whatever, but from the deep down of my heart, i can only see y'all as friends ^^
 
-rn, i'm living my pure good imagination, even reality isnt all bout that, me and y'all alr do the best, its k ^^
+rn, i'm living in my pure good imagination, even reality isnt all bout that, me and y'all alr do the best, its k ^^
 
 at the end of the time, im just an average (or maybe im a below average) person, who doing some stuff
 
