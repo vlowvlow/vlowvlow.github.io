@@ -26,7 +26,7 @@ every time when i talkin/doin/whatever, it just kind of blurry view for myself, 
 
 i'll find therapist or related stuff, if i want & could. if its not good, i & y'all alr do da best, dw
 
-sorry for the past/the present/the future/everything/nothing/whatever ^-^
+im sorry for the past/the present/the future/everything/nothing/whatever ^-^
 
 lfg! wyatb! ^^
 
