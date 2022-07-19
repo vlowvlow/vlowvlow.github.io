@@ -9,7 +9,7 @@ pure good stuff and pure good people that important in our life is never die, th
 if im offline, i dont worry bout y'all, and i wish y'all dont worry bout me, cuz i just believe, im on a pure good adventure! and im preparing something pure good for y'all! i believe y'all doing same as me too! so we can focus
 what the best to do, ig, even reality isnt all bout pure good stuff, its k, cuz i can only wish for pure good ^^
 
-if im online, idk, me and y'all alr do the best, its k ^^
+if im online, idk, whatever it is, me and y'all alr do the best, its k ^^
 
 sometime, human make mistake to make some far even better than mistake, maybe its sort of like, fail faster (as  a billion time for retry) to succeed sooner, (as one goal)
 even still nothing, after all, its just all about two different side of coin, me and y'all alr do the best, and we still have chance to make a wish and make it pure good happen ^^
