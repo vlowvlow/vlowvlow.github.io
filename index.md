@@ -24,7 +24,7 @@ at the end of the time, im just an average (or maybe im a below average) person,
 
 every time when i talkin/doin/whatever, it just kind of blurry view for myself, so idk its good/bad/whatever
 
-i'll find therapist if i want & could, dw
+i'll find therapist or related stuff, if i want & could, dw
 
 sorry for the past/the present/the future/everything/nothing/whatever ^-^
 
