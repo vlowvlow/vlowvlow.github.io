@@ -22,7 +22,7 @@ rn, i'm living my pure good imagination, even reality isnt all bout that, me and
 
 lfg! wyatb! ^^
 
-at the end of the time, im just an average (or maybe im an below average) person, who doing some stuff
+at the end of the time, im just an average (or maybe im a below average) person, who doing some stuff
 
 every time when i talkin/doin/whatever, it just kind of blurry view for myself, so idk its good/bad/whatever
 
