@@ -20,8 +20,6 @@ i can playing to be pretend like i was enemy/villain/evil creature/whatever, but
 
 rn, i'm living my pure good imagination, even reality isnt all bout that, me and y'all alr do the best, its k ^^
 
-lfg! wyatb! ^^
-
 at the end of the time, im just an average (or maybe im a below average) person, who doing some stuff
 
 every time when i talkin/doin/whatever, it just kind of blurry view for myself, so idk its good/bad/whatever
@@ -29,6 +27,8 @@ every time when i talkin/doin/whatever, it just kind of blurry view for myself, 
 i'll find therapist if i want & could, dw
 
 sorry for the past/the present/the future/everything/nothing/whatever ^-^
+
+lfg! wyatb! ^^
 
 sincerely, vlow ^^
 
