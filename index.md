@@ -6,10 +6,10 @@ tbh, this all words just bout what i wanted myself to do, even reality isnt supp
 
 pure good stuff and pure good people that important in our life is never die, they just live in our imagination heart. even in afterlife, maybe, we will be look alike spirit creature, and we dont have heart, but i still believe our heart was there, to remember us, bout the reason, cuz for pure good stuff, even reality isnt all bout pure good stuff, but y'all already know y'all come there for pure good stuff, and thats enough, and y'all already do y'all best ^-^, im done with life, thanks for everything, wish y'all the best -quote by unknown knight
 
-if im offline, i dont worry bout y'all (cuz it so bad if im worry too much), and i wish y'all dont worry bout me, cuz i just believe, im on a pure good adventure! and im preparing something pure good for y'all! i believe y'all doing same as me too! so we can focus
+if im offline, i dont worry bout y'all (cuz it so bad if im worry too much), and i wish y'all dont worry bout me, cuz if im offline, i just believe, im on doing some pure good adventure! and im preparing something pure good for y'all! and i believe y'all doing same as me too! so we can focus
 what the best to do, ig, even reality isnt all bout pure good stuff, its k, cuz i can only wish for pure good ^^
 
-if im online, idk, whatever it is, me and y'all alr do the best, its k ^^
+if im online, idk. whatever it is, me and y'all alr do the best, its k ^^
 
 sometime, human make mistake to make some far even better than mistake, maybe its sort of like, fail faster (as  a billion time for retry) to succeed sooner, (as one goal)
 even still nothing, after all, its just all about two different side of coin, me and y'all alr do the best, and we still have chance to make a wish and make it pure good happen ^^
